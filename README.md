@@ -2,10 +2,15 @@
 
 
 
-★彡
-w2i !!
+★ 𖦹 ׂ 𓈒
+
+w2i pls .ᐟ
 semi ia / offtab often
 
-i dont int much bc i have bad social skills. 😂
+bad social skills
 
-weirdos dni
+im trying fr 😂.
+
+dni : z*robin, lawlu
+
+♫ ₊˚⊹
