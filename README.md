@@ -5,6 +5,6 @@
 
 ★彡
 w2i !!
-semi ia / off tab often
+semi ia / offtab often
 
 weirdos dni
