@@ -8,7 +8,6 @@ w2i pls .ᐟ
 semi ia / offtab often
 
 bad social skills
-
 im trying fr 😂.
 
 dni : z*robin, lawlu
