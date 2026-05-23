@@ -6,4 +6,6 @@
 w2i !!
 semi ia / offtab often
 
+i dont int much bc i have bad social skills. 😂
+
 weirdos dni
