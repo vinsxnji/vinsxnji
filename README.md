@@ -3,7 +3,8 @@
 
 𓏲 ࣪₊ sanjipilled + lawpilled
 
-socially awkward,
-probably too shy to int first
+★彡
+w2i !!
+semi ia / off tab often
 
-dni ⟡ z*robin / lawlu
+weirdos dni
