@@ -5,7 +5,7 @@
 ★ 𖦹 ׂ 𓈒
 
 w2i pls .ᐟ
-semi ia / offtab often
+semi ia / offtab (often disconnecting)
 
 bad social skills
 
