@@ -11,6 +11,8 @@ bad social skills
 
 im trying fr 😂.
 
+feel free to call me anything. Except slurs or insults. (unless jokingly) By my name, or the skin i wear on PT. I usually go by shuji!
+
 dni : z*robin, lawlu
 
 ♫ ₊˚⊹
